@@ -57,6 +57,10 @@ Ovog se i ponosim, napravili smo ti na 125 A priključak, sa 32A kabelom, na 64A
 Bojali smo se da kabeli i ducktape s kojim smo sve spojili ne izgori, ali, taj JF je prezivio. I od onda smo odlucili da će firme nositi svoje piton kablove.
 Sve u svemu, bila je užasna frka i to je bilo zadnji čas riješenje koje smo morali napraviti kako smo najbolje znali.
 
+### Police u Ventilaciji
+
+Prije je ventilacija bila zapravo upravnička. Oni su tamo imali ormare dok se to nije premjestilo u komp. Kada Se je to premjestilo. Ja sam prvi montirao police oko ventilacije i tamo su onda stajale farbe za farbati i te stvari raditi.
+
 ## Kofer od dramske
 
 Koji je dan danas živ. Ofarbali smo ga u rozo kao da ćemo mi njima sjebat kofer, ali jebenoj dramskoj se to svidilo.
@@ -65,17 +69,9 @@ Koji je dan danas živ. Ofarbali smo ga u rozo kao da ćemo mi njima sjebat kofe
 
 To sam radio s nekom novom članicom jednom, ali nemam pojma kako se zove.
 
-## Manji radovi
+## Rupa između foha i techa
 
-- Brava u techu
-- Sva rasvjeta po klubu je u jednom trenu bila popravljana od strane mene
-- Šank ni neznam koliko puta sam popravljo odvod i pipu, tu sam konstantno bio dežuran
-- Wc da ne spominjem
-- Znak od KSETA na vanjskim vratima
-- Brava na jebenim protupozarnima, to sam nedavno ponovo popravljao
-- reflektori po klubu, to dok je bila stara rasvjeta, ja sam dodavao nove reflektore, ako primjetis, ja jako volim lampe
-- Vrata od video sekcije smo ja i Karlo napravili kakva su danas
-- Cimetanje nove garaže da miševi ne ulaze je moje maslo
+Ako vidiš stare slike, skuzit ćeš da je u sekciji prije postajao izlaz na foh od glazbene. E to je nama smetalo, i onda smo se napili jenu nedjelju ja i moj zamjenik Janjić. I to zazidali, i sada imamo tamo jedan lijep zid. Nikoga nismo pitali dozvolu, naravno, savjet je nebitan. Nekima se svidjalo, nekima nije, tehnickoj je bilo super. Mozda mi ovo uzmu za zlo, ali ko ih jebe, ponosan sam na svoj armirani zid od betona.
 
 ## Brucke
 
@@ -87,6 +83,8 @@ To sam radio s nekom novom članicom jednom, ali nemam pojma kako se zove.
 6. Voditelj vanjskog šanka, šef Dunja
 
 Možda sam i zaboravio neku Brucku, nemam svoje iskaznice tu nego kući pa neznam napamet. U principu, hektične brucošijade kao i uvijek. Svašta nešto moraš izmišlajti i raditi. Ja sam uvijek bio jako zadovoljan kako sam odradio Brucke, nisam nikad imao neku pritužbu, a sada, ljudi su nekad pičke pa neće da kažu. Sve u svemu, ovo ti je najbolje provijeriti s drugim ljudima.
+Davidu sam naprimjer isto tako radio shoping za brucosijadu, njegovu drugu.
+Znaš i sam koliko ima priprema oko struje za tu brucosijadu, ja sam i dok sam bio voditelj sankova, pokusao Vama pomoc koliko sam mogao. Iako si se ti bio napizdio na mene jedne godine, sorry, not sorry.
 
 ## JF
 
@@ -109,3 +107,19 @@ Na to sam ponosan, jer sam kao plavi član, pokrenuo to da se krene raditi viken
 
 Kada su nam jednom specijalci uletjeli na koncert Svemirka u klub. Onda su bila svakakva sranja za koja smo bili prijavljeni. Tako da sma ti ja sljedećih mjesec dana, sa čovcom iz zaštite na radu, najbolji lik ikad, dočekavao i vodio svakakve inspektore po klubu.
 Najčešći su bili ovi za panik rasvjetu, iamo sam čovjekov osobni broj. Ovaj raspored jebenih vatrogasnih aparata se je radio kada je došla inspektorica za požare i te gluposti. Onda je došla vanjsak firma pa samo s njima bušili ove stalke i to radili. Bili su tu i inspektori za venilaciju, staru. Koja definitivno nije bila po nikakvom standardu, ali kako to ide u Ksetu, dogovorio sam se ja s njima.
+
+## Prvi, rozi kos za smeće ispred kseta
+
+Kao i dosta stvari koje smo radili po klubu ja i moj zamjenik Janjić. Napili smo se na martinovci i ukrali jedan koš za smeće i donijeli ga kod kseta. Ofarbali ga u rozo kasnije da ispadne da ga nismo ukrali.
+
+## Manji radovi i random stvari
+
+- Brava u techu
+- Sva rasvjeta po klubu je u jednom trenu bila popravljana od strane mene
+- Šank ni neznam koliko puta sam popravljo odvod i pipu, tu sam konstantno bio dežuran
+- Wc da ne spominjem
+- Znak od KSETA na vanjskim vratima
+- Brava na jebenim protupozarnima, to sam nedavno ponovo popravljao
+- reflektori po klubu, to dok je bila stara rasvjeta, ja sam dodavao nove reflektore, ako primjetis, ja jako volim lampe
+- Vrata od video sekcije smo ja i Karlo napravili kakva su danas
+- Cimetanje nove garaže da miševi ne ulaze je moje maslo
