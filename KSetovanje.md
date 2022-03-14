@@ -57,6 +57,14 @@ Ovog se i ponosim, napravili smo ti na 125 A priključak, sa 32A kabelom, na 64A
 Bojali smo se da kabeli i ducktape s kojim smo sve spojili ne izgori, ali, taj JF je prezivio. I od onda smo odlucili da će firme nositi svoje piton kablove.
 Sve u svemu, bila je užasna frka i to je bilo zadnji čas riješenje koje smo morali napraviti kako smo najbolje znali.
 
+## Kofer od dramske
+
+Koji je dan danas živ. Ofarbali smo ga u rozo kao da ćemo mi njima sjebat kofer, ali jebenoj dramskoj se to svidilo.
+
+## Ormarić za karte u garderobi
+
+To sam radio s nekom novom članicom jednom, ali nemam pojma kako se zove.
+
 ## Manji radovi
 
 - Brava u techu
@@ -64,6 +72,10 @@ Sve u svemu, bila je užasna frka i to je bilo zadnji čas riješenje koje smo m
 - Šank ni neznam koliko puta sam popravljo odvod i pipu, tu sam konstantno bio dežuran
 - Wc da ne spominjem
 - Znak od KSETA na vanjskim vratima
+- Brava na jebenim protupozarnima, to sam nedavno ponovo popravljao
+- reflektori po klubu, to dok je bila stara rasvjeta, ja sam dodavao nove reflektore, ako primjetis, ja jako volim lampe
+- Vrata od video sekcije smo ja i Karlo napravili kakva su danas
+- Cimetanje nove garaže da miševi ne ulaze je moje maslo
 
 ## Brucke
 
@@ -82,4 +94,18 @@ Prvi JF je bio samo 24 firme. I tu smo mi radili struju i razvlačili stvari za 
 
 ## Skupstine
 
-Tu sam jedino bio koristan na skupstini od Davida i Čuliga. To sam jebeno dobro odradio, ali poslije toga, ako primjetiš, sam počeo mrziti klub i ljude, tako da ostale skupštine nisam ni bio, na radovima. Čak ni na svojoj skupštini sam jako malo bio. To su odradili Willie i Janjić jako dobro.
+Tu sam jedino bio koristan na skupstini od Davida i Čuliga, svojoj prvoj i drugoj. Za svoje prve skupstinske radove sam dobio i pohvalnicu. To sam jebeno dobro odradio, ali poslije toga, ako primjetiš, sam počeo mrziti klub i ljude, tako da ostale skupštine nisam ni bio, na radovima. Čak ni na svojoj skupštini sam jako malo bio. To su odradili Willie i Janjić jako dobro.
+Najvece radove na skupstini smo radili ja i Culig kada smo mijenjali stari tepison koji je bio na stropu. To je trajalo 12h, i bio sam mrtav poslije toga, konstantno na skeli.
+
+## Ljetni i Zimski radovi
+
+A toga je uvijek bilo, gore sam napisao da sam bio na zimskim radovima, kada smo radili novu struju. I bio sam na Čuligovim ljetnim kada smo radili nove utičnice na galeriji. Toliko smo bušili zid da je klub bio osut prašinom.
+
+## Radovi vikendom
+
+Na to sam ponosan, jer sam kao plavi član, pokrenuo to da se krene raditi vikendima po klubu. I to ovako veliki zahvati. Tu me je bio podržao Bruno, koji je bio i jedini narančasti koji je dolazio samnom da radimo.
+
+## Masa jebene inspakcije poslije raida policije u KSETU
+
+Kada su nam jednom specijalci uletjeli na koncert Svemirka u klub. Onda su bila svakakva sranja za koja smo bili prijavljeni. Tako da sma ti ja sljedećih mjesec dana, sa čovcom iz zaštite na radu, najbolji lik ikad, dočekavao i vodio svakakve inspektore po klubu.
+Najčešći su bili ovi za panik rasvjetu, iamo sam čovjekov osobni broj. Ovaj raspored jebenih vatrogasnih aparata se je radio kada je došla inspektorica za požare i te gluposti. Onda je došla vanjsak firma pa samo s njima bušili ove stalke i to radili. Bili su tu i inspektori za venilaciju, staru. Koja definitivno nije bila po nikakvom standardu, ali kako to ide u Ksetu, dogovorio sam se ja s njima.
