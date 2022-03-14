@@ -85,6 +85,7 @@ Ako vidiš stare slike, skuzit ćeš da je u sekciji prije postajao izlaz na foh
 Možda sam i zaboravio neku Brucku, nemam svoje iskaznice tu nego kući pa neznam napamet. U principu, hektične brucošijade kao i uvijek. Svašta nešto moraš izmišlajti i raditi. Ja sam uvijek bio jako zadovoljan kako sam odradio Brucke, nisam nikad imao neku pritužbu, a sada, ljudi su nekad pičke pa neće da kažu. Sve u svemu, ovo ti je najbolje provijeriti s drugim ljudima.
 Davidu sam naprimjer isto tako radio shoping za brucosijadu, njegovu drugu.
 Znaš i sam koliko ima priprema oko struje za tu brucosijadu, ja sam i dok sam bio voditelj sankova, pokusao Vama pomoc koliko sam mogao. Iako si se ti bio napizdio na mene jedne godine, sorry, not sorry.
+Šankove na brucošijadi, kada smo radili sve sa tim novim fiskalnim blagajnama, tu sam sudjelovao oko toga kako ćemo ih fizički izvesti.
 
 ## JF
 
@@ -123,3 +124,4 @@ Kao i dosta stvari koje smo radili po klubu ja i moj zamjenik Janjić. Napili sm
 - reflektori po klubu, to dok je bila stara rasvjeta, ja sam dodavao nove reflektore, ako primjetis, ja jako volim lampe
 - Vrata od video sekcije smo ja i Karlo napravili kakva su danas
 - Cimetanje nove garaže da miševi ne ulaze je moje maslo
+- Dok sam ja bio šef tehničke i kasnije, konstantno sam bio u razgovorima oko stvari sa Aleksandrom sa FERA, i kolegom čovjekom sa zaštite na radu. Ima mojih potpisa po svakakvim dokumentima tamo.
